@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with plants vs brainrots Script new, the #1 Script. Includes fly and auto-farm for unbeatable
 
 
 
